@@ -1,2 +1,0 @@
-Xiaojun Shi
-Yankee
